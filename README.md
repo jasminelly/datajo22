@@ -12,4 +12,3 @@ Where the cool kids have fun
 # 😲 🐉 🍵
 
 > *so true bestie*
-awooga
